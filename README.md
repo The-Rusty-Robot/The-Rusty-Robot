@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @The-Rusty-Robot
+- 👀 I’m interested in: game code
+- 🌱 I’m currently learning: nothing right now
+- 💞️ I’m looking to collaborate 
+- 📫 How to reach me: email or one of my comments
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I'm autistic
